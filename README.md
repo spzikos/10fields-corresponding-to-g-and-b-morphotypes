@@ -1,0 +1,1 @@
+# 10fields-corresponding-to-g-and-b-morphotypes
